@@ -1,0 +1,1 @@
+O curso está sendo ótimo, bem dinâmico e direto, ótimo professor e um conteúdo bem interessante até aqui.
